@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @armoif
+- 👀 I’m a french programer
+- 🌱 I’m currently learning android studio
+- 💞️ I’m looking to collaborate on application project
+- 📫 How to reach me: letter
+- 😄 Pronouns: Helicoptere de combat
+- ⚡ Fun fact: funny
